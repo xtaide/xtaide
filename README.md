@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/101882867/159027712-78e608d8-4113-4e9d-b4bc-2d5b21f848d4.png)
+![image](https://user-images.githubusercontent.com/101882867/159027939-e98d055e-bfc7-4ec8-8157-5be06a1cbb4a.png)
 
 - 👋 Hi, I’m @xtazxc
 - 👀 I’m interested in ...
